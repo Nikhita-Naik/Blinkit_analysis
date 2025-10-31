@@ -49,3 +49,5 @@ Customer satisfaction trends
 
 Areas of improvement for future sales strategy
 
+📸 LinkedIn Post: https://www.linkedin.com/feed/update/urn:li:activity:7389965804051628032/
+
